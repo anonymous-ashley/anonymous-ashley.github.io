@@ -1,3 +1,7 @@
+---
+title: Exposing THEM?!
+---
+
 This whole journey started not so long ago. It was a dark and stormy night, and I looked at the leaderboard of the CTF I was doing. I see an unfamiliar team: “THEM?\!” Oh, the aura emanated from that name. Checking the Discord server of that CTF, I saw some members spamming recruitment for this team. “THEM?\! on top\!” was a common phrase I was observing. My curiosity piqued, and I decided to join their server. Immediately, you are welcomed with roles glazing FMC (Friendly Maltese Citizens) and WWF (World Wide Flags) to state a few examples. I was surprised. Was this a good team?
 
 From my friends, I heard that this team thinks they’re in a merger with FMC\! Unironically, they flex this. With this in mind, I started my journey of trying to get into THEM?\!
